@@ -1,1 +1,3 @@
 # yojiji
+woshijixinzhi
+nihaoya 
